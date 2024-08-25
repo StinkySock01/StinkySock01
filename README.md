@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @StinkySock01
+- 👀 I’m interested in: programming or anything related to technology.
+- 🌱 I’m currently learning: C++
+- 📫 How to reach me: Through discord = ryoya.fly
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I'm dumb.
